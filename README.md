@@ -1,1 +1,1 @@
-# naz.github.io
+https://muhammadnazrimusta.wixsite.com/the-tech
